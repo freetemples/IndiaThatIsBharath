@@ -8,3 +8,8 @@ https://www.youtube.com/watch?v=BZ7XdcMFGLI&skip_registered_account_check=true
 
 Free Our Temples - J Sai Deepak - 
 "Centre for Indic Studies".
+
+
+
+How Government Controls Hindu Temples - J Sai Deepak
+
